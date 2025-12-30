@@ -14,7 +14,7 @@
 ## ⚡ Fun Facts
 
 - 🎮 Competitive Dota 2 player — **10,000 MMR (Top 2400 EU)**
-- ⚽ Played football professionally for **15 years**
+- ⚽ Played football professionally 
 - 🏃 Strong discipline and teamwork background
 - 🧠 Highly focused and performance-driven mindset
 <!---
